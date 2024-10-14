@@ -1,4 +1,4 @@
-## Hi there 👋
+## Furningna my wife🤓
 
 <!--
 **Furningna1013/Furningna1013** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
